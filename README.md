@@ -1,2 +1,0 @@
-- 👋 Hi, I’m zwubbl
-- 📫 How to reach me: verlustaengste on Discord
